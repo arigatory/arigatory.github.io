@@ -1,0 +1,1 @@
+# arigatory.github.io
